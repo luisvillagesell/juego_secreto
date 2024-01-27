@@ -1,1 +1,1 @@
-Juega cinmigo este entretenido juego
+Juega conmigo este entretenido juego
